@@ -8,7 +8,7 @@ All the best,
 *Adjunct Professor*  
 ECECS  
 Tagliatela College of Engineering  
-U. of New Haven  
+University of New Haven  
 West Haven, CT  
 e-mail: [tmarkowitz@newhaven.edu](tmarkowitz@newhaven.edu)
 
